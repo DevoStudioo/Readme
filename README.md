@@ -1,1 +1,2 @@
-# Readme
+# Hello and welcome this is a Organization of the official DevoStudio that was founded by Death and i2hs2 
+# Thank you for visiting this place is still under construction but will be opened and available soon...
